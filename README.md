@@ -1,7 +1,7 @@
 - 👋 Oi, sou @GUiSiLVAaaa
 - 👀 Estou interessado em nada ...
 - 🌱 ...
-- 📫 Entre em contanto comigo silvaguilherme51143@gmail.com
+- 📫 Entre em contanto comigo guilherme.da.silva19@escola.pr.gov.br
 - 😄 Pronomes: Ele/Dele
 
 <!---
